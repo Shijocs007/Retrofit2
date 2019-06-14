@@ -1,3 +1,3 @@
 # Retrofit2
 
-![Alt Text](https://firebasestorage.googleapis.com/v0/b/cybrillatest-ad60b.appspot.com/o/ezgif.com-video-to-gif%20(2).gif?alt=media&token=8c48546d-f158-4adb-addf-30eb1cadf0fd)
+![Alt Text](https://firebasestorage.googleapis.com/v0/b/cybrillatest-ad60b.appspot.com/o/retrofit%20(1)-min-min.gif?alt=media&token=8aaad88b-d142-4c4e-b71a-cb44021eeeb7)
